@@ -28,3 +28,10 @@ Original review:
 "4.5/5: The misogyny is strong in this one but damn that message is strong. That philosophy at the end regarding the existence of reality only in mind is so interesting and the idea of surveillance in the context of AI wow"
 
 This review isn't as bad as the others. The criticism of misogyny is more specific than anything else in the other reviews. This one I disagree with in an ideological sense. The reviewer seems to be concerned about AI surveillance, something I think is dramatized and okay in reality. Ai and the companies behind them are only after what is best for its customers, and only look to compete amongst other AI companies. This is the promise of capitalism. Data is tracked to improve user experience, and further the software. Two things, that, in my opinion, aren't bad at all! This poster obviously wants no internet, if privacy and security is what they're after. Let the AI have its fun. I rate this review a 3/5 - while still a little frugal in detail, it at least talks about the book's ideas in an interesting way that recontextualizes the story. 
+
+
+## Links 
+
+Here are the links to the books on Amazon (Amazon is my favorite website in the world) if you wanna read them and also experience this reviewer's awful takes. 
+
+[The Ender's Game](https://www.amazon.com/Enders-Game-Ender-Quintet-1/dp/1250773024/ref=sr_1_1?dib=eyJ2IjoiMSJ9.y5lTyplGrvvgp_eLA4ZlvoPApYD1Uu9WfVgg_r8xqAnwV3G2sPG7b_OS62prRebvPCW9jUZ-iOkwSCypti5RkH2AfmWj0oafWEsae7D_Clsp-_6a6pni3_nbhaE7nc9VCkbMvVMXtYSM0WmARblnUY-1IHIpQEyo0TCqx9gc5KQoDpdpzaifgIhyr0ZwYKAryPoQnseg0krXFhJ31sFfuryUZEd2FzEdl2AlZJ_UvVw.cD0kX5d62oH_bVQII0uUl8jqF91zwlu9xUW-YOqsmYo&dib_tag=se&keywords=the+enders+game&qid=1790559333&sr=8-1)
