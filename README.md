@@ -21,8 +21,9 @@ Here's the original review:
 Wow, it's a book about life and death and love and loss! And left the reviewer achingly sad! It reads like it was written on a car ride to some Met Gala-like event, and the poster only had 30 seconds to scribble something down. The only redeemable aspect: my mom liked this book a lot. So the rating, at least, is valid. I rate this review a 1.5/5 stars. 
 
 ##### 1984 by George Orwell 
+<img src = "1984.jpg"> 
 
-Original review 
+Original review: 
 
 "4.5/5: The misogyny is strong in this one but damn that message is strong. That philosophy at the end regarding the existence of reality only in mind is so interesting and the idea of surveillance in the context of AI wow"
 
