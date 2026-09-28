@@ -34,4 +34,9 @@ This review isn't as bad as the others. The criticism of misogyny is more specif
 
 Here are the links to the books on Amazon (Amazon is my favorite website in the world) if you wanna read them and also experience this reviewer's awful takes. 
 
-[The Ender's Game](https://www.amazon.com/Enders-Game-Ender-Quintet-1/dp/1250773024/ref=sr_1_1?dib=eyJ2IjoiMSJ9.y5lTyplGrvvgp_eLA4ZlvoPApYD1Uu9WfVgg_r8xqAnwV3G2sPG7b_OS62prRebvPCW9jUZ-iOkwSCypti5RkH2AfmWj0oafWEsae7D_Clsp-_6a6pni3_nbhaE7nc9VCkbMvVMXtYSM0WmARblnUY-1IHIpQEyo0TCqx9gc5KQoDpdpzaifgIhyr0ZwYKAryPoQnseg0krXFhJ31sFfuryUZEd2FzEdl2AlZJ_UvVw.cD0kX5d62oH_bVQII0uUl8jqF91zwlu9xUW-YOqsmYo&dib_tag=se&keywords=the+enders+game&qid=1790559333&sr=8-1)
+#### [The Ender's Game](https://www.amazon.com/Enders-Game-Ender-Quintet-1/dp/1250773024/ref=sr_1_1?dib=eyJ2IjoiMSJ9.y5lTyplGrvvgp_eLA4ZlvoPApYD1Uu9WfVgg_r8xqAnwV3G2sPG7b_OS62prRebvPCW9jUZ-iOkwSCypti5RkH2AfmWj0oafWEsae7D_Clsp-_6a6pni3_nbhaE7nc9VCkbMvVMXtYSM0WmARblnUY-1IHIpQEyo0TCqx9gc5KQoDpdpzaifgIhyr0ZwYKAryPoQnseg0krXFhJ31sFfuryUZEd2FzEdl2AlZJ_UvVw.cD0kX5d62oH_bVQII0uUl8jqF91zwlu9xUW-YOqsmYo&dib_tag=se&keywords=the+enders+game&qid=1790559333&sr=8-1)
+
+
+#### [They Both Die at the End](https://www.amazon.com/They-Both-Die-at-End/dp/0062457802/ref=tmm_pap_swatch_0)
+
+#### [1984] (https://www.amazon.com/1984-George-Orwell/dp/0452284236/ref=sr_1_6?crid=2447GCAH9MYSH&dib=eyJ2IjoiMSJ9.gGFViPrSzpo-ZUw2gyAUTGWR-zVrsv1e8ANanQWQ4Eeq-vnr0hgotH73yKl_3NzBntoGp4MBvAVYRxejINJACooTwJeGkrFhnMHV9KHAMN5c_7283K-_dXhkQeP5afo1opk1_Xp-6HFbUkrgk4vi2rMi5Ck9L7CfjVuwJZhyudpkxWFeZySK-uZe1IOejl_HfhLRIpx7xzZEZS8tfriK6wbWZDOj7goLagbi82gVFzw.5UAHN6CQRkrsfAaMElRb8ni5IJ1VxC7B-9yOndMyLJQ&dib_tag=se&keywords=1984+george+orwell&qid=1790559544&s=books&sprefix=1984+%2Cstripbooks%2C187&sr=1-6)
