@@ -1,10 +1,7 @@
 ---
 ---
 
-@import "rc-theme";
-
-##.Review-of-Reviews {
-    
+@import "{{ site.theme }}";
+.page-header {
     background-color: #7a3079;!important
-    
 }
