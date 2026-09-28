@@ -7,7 +7,7 @@
 
 Here is the poster's original review: 
 
- "4.5/5 : Omg top 10 sci-fis I've ever read fr. Definetly lived up to the hype and it's so crazy to me that bro was only 6."
+ "4.5/5 : Omg top 10 sci-fis I've ever read fr. Definetly lived up to the hype and it's so crazy to me that bro was only 6"
 
 First, let's address the sci-fi in the room. Sci-fi is stupid. How are you science-based if what you are is fiction in reality? Sci-fi is an excuse for nerds to write fantasy that takes place in space. So our dear critic calling this novel "sci-fi" already sets the tone for this sorry excuse for a review. Then, the reviewer goes on to explain how it lived up to its hype. This is the only credible part of the review. It is true, Ender's game is rated 4.31 on GoodReads (the most credible website that has ever existed), and is apparently widely loved. The reviewer's only valid statement about this story is an objective fact about the popularity of the novel. And their last comment, that "bro was only 6,"....I just don't care. I give the review a 1/5 stars.
 
@@ -15,8 +15,15 @@ First, let's address the sci-fi in the room. Sci-fi is stupid. How are you scien
 <img src = "33385229.jpg"> 
 
 Here's the original review:
-"4/5: Great commentary about life and death and love and loss. So sad but in an aching way great book." 
+
+"4/5: Great commentary about life and death and love and loss. So sad but in an aching way great book" 
 
 Wow, it's a book about life and death and love and loss! And left the reviewer achingly sad! It reads like it was written on a car ride to some Met Gala-like event, and the poster only had 30 seconds to scribble something down. The only redeemable aspect: my mom liked this book a lot. So the rating, at least, is valid. I rate this review a 1.5/5 stars. 
 
-##### I am 
+##### 1984 by George Orwell 
+
+Original review 
+
+"4.5/5: The misogyny is strong in this one but damn that message is strong. That philosophy at the end regarding the existence of reality only in mind is so interesting and the idea of surveillance in the context of AI wow"
+
+This review isn't as bad as the others. The criticism of misogyny is more specific than anything else in the other reviews. This one I disagree with in an ideological sense. The reviewer seems to be concerned about AI surveillance, something I think is dramatized and okay in reality. Ai and the companies behind them are only after what is best for its customers, and only look to compete amongst other AI companies. This is the promise of capitalism. Data is tracked to improve user experience, and further the software. Two things, that, in my opinion, aren't bad at all! This poster obviously wants no internet, if privacy and security is what they're after. Let the AI have its fun. I rate this review a 3/5 - while still a little frugal in detail, it at least talks about the book's ideas in an interesting way that recontextualizes the story. 
